@@ -1,1 +1,1 @@
-- 👋 Hi, I’m Craig, Founder of RemittDAO
+- 👋 Hi, I’m Greg.
